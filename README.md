@@ -15,3 +15,7 @@ Read Higurashi no Naku Koro ni
 Read Umineko no Naku Koro ni
 Read Grisaia no Kajitsu (and the Grisaia trilogy in general, this includes Meikyuu and Rakuen)
 And if you'd like more info on how to obtain those or other Visual Novel recommendations, feel free to contact me!
+
+Kind regards
+
+Rukasu Mizukiyo, Ph.D. in Monster Girls and Artificial Intelligence.
